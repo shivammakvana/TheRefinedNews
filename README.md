@@ -1,0 +1,1 @@
+The Refined News is an online platform designed to deliver the latest news, articles, and updates across diverse categories like politics, sports, technology, and entertainment. With a user-friendly interface and real-time updates, it ensures reliable and fast access to information.
